@@ -1,2 +1,0 @@
-# panoramas
-chatgpt right here
